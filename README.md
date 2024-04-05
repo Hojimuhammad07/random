@@ -1,1 +1,1 @@
-# random
+random bu matematikaga oid ishim
